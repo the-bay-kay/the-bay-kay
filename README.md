@@ -1,6 +1,4 @@
 @the-bay-kay  ʕ -ᴥ-ʔ ♡
-
-Honestly, I'm kind of shocked you're reading this...
 - CS & Linguistics Student at UCLA
 - Email : katie.risc@gmail.com
 
