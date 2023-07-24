@@ -1,4 +1,4 @@
-@the-bay-kay  ʕ -ᴥ-ʔ ♡
+@the-bay-kay ♡ 🏳️‍⚧️ ♡
 - Software Engineer & Linguist
 - UCLA Graduate, Class of 2023
 - Email : katie.risc@gmail.com
