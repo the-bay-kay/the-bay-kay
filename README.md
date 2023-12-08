@@ -1,5 +1,6 @@
 @the-bay-kay ♡ 🏳️‍⚧️ ♡
 - Software Engineer & Linguist
+- Intern at the National Renewable Energy Laboratory (NREL)
 - UCLA Graduate, Class of 2023
 - Email : katie.risc@gmail.com
 
